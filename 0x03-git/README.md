@@ -1,1 +1,1 @@
-Can you see my hard work is worth it, keep doing hard things!
+The only way to keep up is, keep doing hard things!
